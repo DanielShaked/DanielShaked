@@ -9,7 +9,7 @@
 
 • 🎯 High self-disciplined with a constant drive for professional excellence.
 
-• 📫 You can reach me at **danielshaked.dev@gmail.con**
+• 📫 You can reach me at **dev.danielshaked@gmail.com**
 
 • 💙 Fun fact: I love meditation, running, and drawing 🎨
 
